@@ -9,9 +9,9 @@
 
 I was trying to decide how to respond to Donald Trump's election.  I considered:
 
-#. Moving to New Zealand
-#. Spending the next four years drunk
-#. Using my software skills to get Democrats elected.
+1. Moving to New Zealand
+2. Spending the next four years drunk
+3. Using my software skills to get Democrats elected.
 
 My wife wouldn't go for the first one and after three nights of heavy
 drinking the second one isn't as appealing as it sounds at first (and
