@@ -1,5 +1,10 @@
 # Run for office
 
+> If this is going to be a time of healing, we must first put the
+> responsibility for healing where it belongs: at the feet of Donald
+> Trump, a sexual predator who lost the popular vote and fueled his
+> campaign with bigotry and hate.
+>
 > - Harry Reid
 
 I was trying to decide how to respond to Donald Trump's election.  I considered:
